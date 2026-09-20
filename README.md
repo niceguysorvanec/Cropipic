@@ -222,4 +222,4 @@ CropiPic is available as a full free version, providing all features and updates
 Elevate your video and photo editing game today! Download CropiPic for free and start creating stunning content.
 
 ---
-**Last updated:** 2026-09-20 18:38:47 UTC
+**Last updated:** 2026-09-20 21:23:14 UTC
